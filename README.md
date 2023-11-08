@@ -1,1 +1,0 @@
-# goran-lazic-gcore.github.io
